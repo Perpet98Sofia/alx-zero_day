@@ -1,1 +1,1 @@
-My first readme
+Masomo yanitosha kwa sasa
